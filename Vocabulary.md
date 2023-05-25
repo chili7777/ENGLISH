@@ -1,0 +1,11 @@
+# Vocabulary
+- Suitable -> Adecuada -> ˈso͞odəb(ə)l
+- Narrow down -> Acortar -> ˈnerō doun
+- Nigthmare -> Pesadilla -> ˈnītˌmer
+- Through -> A traves de ->  THro͞o
+- widely -> ampliamente -> ˈwīdlē
+- feasible -> factible -> ˈfēzəb(ə)l
+- made up -> arregaldo -> mād əp
+- interleave ->  intercalar -> ˌin(t)ərˈlēv
+- however -> sin embargo -> houˈevər
+- precedence -> precedencia -> ˈpresədəns
